@@ -2,22 +2,21 @@
 
 Activity 1:
 
-https://media.github.umn.edu/user/19713/files/fd05ca96-8e39-4325-ac45-0e04fdb60e3d
+https://user-images.githubusercontent.com/63309629/191894043-4fb1fb59-3e84-4391-977a-a6985192fd14.mp4
 
 Activity 2:
 
-https://media.github.umn.edu/user/19713/files/7ce643f1-d7e4-48ab-8d9f-9e4668760df5
+https://user-images.githubusercontent.com/63309629/191894062-f16ffbe9-75cf-4749-812c-89972c531983.mp4
 
 Activity 3:
 
-https://media.github.umn.edu/user/19713/files/7c6720f0-5468-4ee1-b24d-fbeee759c068
+https://user-images.githubusercontent.com/63309629/191894091-19cb54a7-ee6f-46a7-b5df-63ff5846eb88.mp4
 
 Activity 4:
 
-![Activity_4](https://media.github.umn.edu/user/19713/files/8185ca8e-2ef1-4b25-a519-28a0d331416b)
+![Activity_4](https://user-images.githubusercontent.com/63309629/191894135-d1c2c2a2-0b75-4119-8ffa-d4d2adbbb458.png)
 
 Activity 5:
 
-https://media.github.umn.edu/user/19713/files/ff3629f9-9bf3-48fd-a063-6ad2c8521c7d
+https://user-images.githubusercontent.com/63309629/191894104-848aaedc-a106-485f-b6b9-0ab1e5520ef0.mp4
 
-# 5611
